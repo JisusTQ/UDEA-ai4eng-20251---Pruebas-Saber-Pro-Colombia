@@ -8,4 +8,4 @@ Juan Pablo Ramos Vélez - 1193518347 - Ingenieria de sistemas
 
 Enlace para video de Entrega 2: https://youtu.be/U-C1kTvqicI?si=0X6ZfeCwIbwVhSdZ
 
-Enlace para video de Entrega 3:
+Enlace para video de Entrega 3: https://youtu.be/16r3F7AnfVo
